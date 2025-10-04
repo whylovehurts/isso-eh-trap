@@ -18,6 +18,7 @@ tevito, link do zap, senndy,
 emitê único, N.A.N.A, nagalli,
 aka rasta, baby g2c, xamã,
 vulgo fk, tokiodk e jotapê
+leozin, felipe ret
 ```
 
 - __Referências Internacionais 🌐__
