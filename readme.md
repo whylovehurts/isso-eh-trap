@@ -1,3 +1,5 @@
+# 🎼╺╸Recomendações de Trap
+> Lista feita por `whylovehurts` (discord), com o objetivo de ajudar quem precisa de recomendações doq escutar
 
 `
 alee, leviano, tchelo, jé, sotam, ryu, kyan, abbot, KayG, boaventura, yung lince, japa, LPT Zlatan, yunk vino, brandao085, klisman, BK, Ghard, KayBlack, budah, duquesa, tasha e tracie, recayd, derek, nebrugg, LX, 1-800 WLRD, mc igu, phl noturn boy, LH CHUCRO, the boy, huzz, duzz, jovem dex, tevito, link do zap, senndy, emitê único, N.A.N.A, nagalli, aka rasta, baby g2c, xamã, vulgo fk, tokiodk e jotapê
