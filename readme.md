@@ -1,4 +1,4 @@
-# 🎼╺╸Recomendações de Trap
+## 🎼╺╸Recomendações de Trap
 > Lista feita por `whylovehurts` (discord), com o objetivo de ajudar quem precisa de recomendações doq escutar
 
 `
