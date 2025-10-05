@@ -22,17 +22,17 @@ Mc Ph
 
 - __Referências Internacionais 🌐__
 ```
-pusha T, king von, travis, 
-jay-z, kanye, young thug, 
-kodak black, nas, lil uzi vert, 
-don toliver, carti, ken carson, destroy lonely, young boy, Tay-K, 
-lil yachty, baby keem, 
-kendrick lammar, trippie red, 
-chief keef, xxxtentacion, big sean, 
-yeat, kid cudi, skepta, a$ap rocky, tyler the creator, rich amiri, 
-lil wayne, 21 savage, gunna, sexxy red, drake, lil pump, lil durk, 
+Pusha T, King Von, Travis, 
+JAY-Z, Kanye West, Young Thug, 
+Kodak Black, Nas, Lil Uzi Vert, 
+Don Toliver, Playboi Carti, Ken Carson, Destroy Lonely, Young Boy, Tay-K, 
+Lil Yachty, Baby Keem, 
+Kendrick Lammar, Trippie Red, 
+Chief Keef, XXXTENTACION, Big Sean, 
+Yeat, Kid Cudi, Skepta, A$AP rocky, Tyler The Creator, Rich Amiri, 
+Lil Wayne, 21 Savage, Gunna, Sexxy Red, Drake, Lil Pump, Lil Durk, 
 NLE Choppa, PARTYNEXTDOOR, 
-ty dolla $ign, quavo, meek mil, 
-metro boomin, future, André 3000, 
-lil tecca, outkast, gucci mane e pharell williams
+Ty Dolla $ign, Quavo, Meek Mil, 
+Metro Boomin, Future, André 3000, 
+Lil Tecca, Outkast, Gucci Mane e Pharell Williams
 ```
