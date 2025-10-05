@@ -1,24 +1,23 @@
 ## 🎼╺╸Recomendações de Trap
 > Lista feita por `whylovehurts` (discord), com o objetivo de ajudar quem precisa de recomendações doq escutar
 
-. ..𓂃 ࣪ ִֶָ📝་༘࿐ִ ࣪
-
 - __Referências Nacionais 🇧🇷__
 ```
-alee, leviano, tchelo,
-jé, sotam, ryu, kyan,
-abbot, KayG, boaventura,
-yung lince, japa, LPT Zlatan,
-yunk vino, brandao085, klisman,
-BK, Ghard, KayBlack, budah,
-duquesa, tasha e tracie, recayd,
-derek, nebrugg, LX, 1-800 WLRD,
-mc igu, phl noturn boy, LH CHUCRO, the boy, huzz, duzz, jovem dex,
-tevito, link do zap, senndy,
-emitê único, N.A.N.A, nagalli,
-aka rasta, baby g2c, xamã,
-vulgo fk, tokiodk e jotapê
-leozin, felipe ret
+Alee, Leviano, Tchelo Rodrigues,
+Jé, Sotam, Ryu, Kyan,
+Abbot, KayG, Boaventura,
+Yung Lince, Japa, LPT Zlatan,
+Yunk Vino, Brandao085, Klisman,
+BK, Ghard, KayBlack, Budah,
+Duquesa, Tasha e Tracie, Recayd,
+Derek, Nebrugg, LX, 1-800 WLRD,
+Mc Igu, Phl Noturnboy, LH CHUCRO, The Boy, Huzz, Duzz, Jovem Dex,
+Tevito, Link do Zap, Senndy,
+Emitê Único, N.A.N.A, Nagalli,
+Aka Rasta, Baby G2c, Xamã,
+Vulgo Fk, Tokiodk, Leozin,
+Felipe Ret, Jotapê, Mc Cabelinho,
+Mc Ph
 ```
 
 - __Referências Internacionais 🌐__
